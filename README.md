@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/479a9ad25cfee11ab1be4b9a31d1c782/3cc6d87223ab52d6-4f/s640x960/4bb28313ad1d505e7eba2ec193a5ae7c11acc76d.pnj" alt="manytabs" width="950" width="60" loading="lazy" style="max-width:100%;height:auto;">
                                       
                                       ⭐⁀ +. pfp and banner made by me .+ ⁀⭐
-<img width="1085" height="611" alt="DIMES__________Roblox_oc_______-removebg-preview (2)" src="https://github.com/user-attachments/assets/2aac24bd-5353-49c3-8170-34d6a47577ea"/>
+<img width="1285" height="711" alt="DIMES__________Roblox_oc_______-removebg-preview (2)" src="https://github.com/user-attachments/assets/2aac24bd-5353-49c3-8170-34d6a47577ea"/>
 
                                         ୭⋆ ︵‿ 𝐇𝖾𝗒 𝗍ɦ𝖾𝗋𝖾, 𝗒ⱺυ . !! 𝗍ɦ𝗂𝗌 ρα𝗀𝖾 ω𝗂ᥣᥣ ρ𝗋ⱺᑲαᑲᥣ𝗒 
                                 ᑲ𝖾 υρᑯα𝗍𝖾ᑯ 𝖾𝗏𝖾𝗋𝗒 𝗌𝗂𐓣𝗀ᥣ𝖾 𝗍𝗂ꭑ𝖾 𝗂'ꭑ ɦ𝗒ρ𝖾𝗋𝖿𝗂𝗑α𝗍𝗂𐓣𝗀 ⱺ𝗏𝖾𝗋 𝗌ⱺꭑ𝖾𝗍ɦ𝗂𐓣𝗀... ‿︵ ⋆✩
