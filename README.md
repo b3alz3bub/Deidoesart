@@ -40,3 +40,7 @@
 
 
 <img width="950" height="66" alt="Screenshot__1_-removebg-preview (1)" src="https://github.com/user-attachments/assets/7a1a70d0-3420-44a4-92a1-da7d94d19185" />
+
+
+
+<img src="https://git.io/typing-svg"/>
