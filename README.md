@@ -3,7 +3,11 @@
 
 <img width="657" height="678" alt="deidoesart github" src="https://github.com/user-attachments/assets/241d6f8b-b7b1-4c41-9157-e40f2296274b" />
 <p align="center">
- $${\color{#eb5204}Heyo! \space I'm \space dei \space / \space denny \space ★ \space any \space prns \space ★ \space ENJF}$$
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/text/hello4.gif"/>
+
+ $${\color{#eb5204}Call \space me \space dei \space / \space denny \space ★ \space any \space prns \space ★ \space ENJF}$$
 
 $${\color{#eb5204}⭒★˙🍓 \space ⋆.ೃ࿔*:･ \space 🦢 \space ★་༘࿐ \space ⋆🎸⋆⭒}$$
 
@@ -12,6 +16,12 @@ $${\color{#eb5204}so \space I \space could \space be \space on \space dniuf, \sp
 
 <p align="center">
 ${\textsf{\color{#eb5204}𝘢𝘭𝘸𝘢𝘺𝘴 𝘴𝘦𝘮𝘪-𝘰𝘧𝘧𝘵𝘢𝘣 𝘢𝘯𝘥 𝘋𝘕𝘊}}$
+
+
+<p align="center">
+${\textsf{\color{#eb5204}𝘔𝘶𝘭𝘵𝘪𝘧𝘢𝘯𝘥𝘰𝘮 !!}}$
+<p align="center">
+${\textsf{\color{#eb5204} ➤. (𝘤𝘳𝘬, 𝘯𝘪𝘯𝘢𝘩, 𝘬𝘯𝘺, 𝘸𝘩, 𝘢𝘯𝘥 𝘢𝘭𝘰𝘵 𝘮𝘰𝘳𝘦 ><) }}$
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/fatterstrawberries.gif"/>
