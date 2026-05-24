@@ -1,7 +1,7 @@
 <p align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F79B60&center=true&width=435&lines=%22+%F0%9D%91%B4%F0%9D%92%82%F0%9D%92%8A%F0%9D%92%8D+%F0%9D%92%84%F0%9D%92%82%F0%9D%92%8D%F0%9D%92%8D!+%F0%9D%91%B4%F0%9D%92%82%F0%9D%92%8A%F0%9D%92%8D+%F0%9D%92%84%F0%9D%92%82%F0%9D%92%8D%F0%9D%92%8D!+%22" alt="Typing SVG" /></a>
 
-<img width="767" height="788" alt="deidoesart github" src="https://github.com/user-attachments/assets/8990d58c-24ca-44cb-8c9f-01282e8e0085" />
+<img width="767"  alt="deidoesart github" src="https://github.com/user-attachments/assets/8990d58c-24ca-44cb-8c9f-01282e8e0085" />
 
 
 <p align="center">
